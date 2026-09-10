@@ -1,4 +1,9 @@
-## Hi there 👋
+Dude I'm gen so horrible with coding,, let me do a magic trick ok?
+
+![Logo](https://media.tenor.com/ANoTHszTe4IAAAAj/moonrush-urss.gif)
+
+ok bye
+
 
 <!--
 **no1bestPisschugger/no1bestPisschugger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
