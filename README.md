@@ -2,7 +2,7 @@ Dude I'm gen so horrible with coding,, let me do a magic trick ok?
 
 ![Logo](https://media.tenor.com/ANoTHszTe4IAAAAj/moonrush-urss.gif)
 
-Also this WHOLE shat is still a wip soo,, buh bye !
+Also this whole account shat is still a wip soo,, buh bye !
 
 
 <!--
