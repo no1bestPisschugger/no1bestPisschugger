@@ -1,3 +1,5 @@
+![](https://api.visitorbadge.io/api/VisitorHit?user=estruyf&repo=github-visitors-badge&countColor=%237B1E7A)
+
 Dude I'm gen so horrible with coding,, let me do a magic trick ok?
 
 ![Logo](https://media.tenor.com/ANoTHszTe4IAAAAj/moonrush-urss.gif)
