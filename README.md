@@ -1,4 +1,4 @@
-![](https://api.visitorbadge.io/api/VisitorHit?user=estruyf&repo=github-visitors-badge&countColor=%237B1E7A)
+![](https://visitorbadge.io)
 
 Dude I'm gen so horrible with coding,, let me do a magic trick ok?
 
