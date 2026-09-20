@@ -1,4 +1,4 @@
-![Visitors](https://api.visitorbadge.io/api/visitors?path=no1bestPisschugger&label=VISITORS&countColor=%23263759&labelStyle=upper)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=no1bestPisschugger&label=Soldiers%20Enlisted&labelColor=%23984d5e&countColor=%23c296a2&labelStyle=upper)
 
 Dude I'm gen so horrible with coding,, let me do a magic trick ok?
 
