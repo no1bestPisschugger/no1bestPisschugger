@@ -1,4 +1,4 @@
-![%ad4035](https://visitorbadge.io)
+![![Visitors](https://api.visitorbadge.io/api/visitors?path=no1bestPisschugger&label=VISITORS&countColor=%23263759&labelStyle=upper)](https://visitorbadge.io)
 
 Dude I'm gen so horrible with coding,, let me do a magic trick ok?
 
