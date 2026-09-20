@@ -1,4 +1,4 @@
-![](https://visitorbadge.io)
+![%ad4035](https://visitorbadge.io)
 
 Dude I'm gen so horrible with coding,, let me do a magic trick ok?
 
